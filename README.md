@@ -1,0 +1,5 @@
+- 👋 Hola! Soy @N30C0R73X
+- 👀 Estoy interesado en el mundo de los NFT
+- 🌱 Actualmente estoy aprendiendo a programar en la Blockchain para poder desarrollar mi videojuego
+- 💞️ Me gustaría colaborar con personas que sepan de este mundo
+- 📫 Pueden contactarme vía Discord: Ulge#3931
